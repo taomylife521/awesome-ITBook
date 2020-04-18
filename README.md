@@ -24,7 +24,7 @@
 
 [2.部署与发布策略演进](https://72k.us/file/24829650-426811920)
 
-![关注获取更多免费书籍资料](https://github.com/taomylife521/job/master/images/weixin.png)
+![关注获取更多免费书籍资料](https://images.cnblogs.com/cnblogs_com/taomylife/641845/o_200418050738weixin.png)
 
 
 
